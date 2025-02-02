@@ -47,7 +47,7 @@
 	- Sis Mhars suggests: practice of giving (from offerings) towards the bible studies (provide a little food and drink etc.)
 	- Bro Jhay replies: there are risks in giving in bible studies, so it is suggested that we approach giving when they have a deeper relationship with God
 	- Pastor Ramil adds: to approach the giving aspect in evangelism that others feel less pressured to provide for us.
-	- Bro Jhay suggestions: start a seminar in Feb 23 taught by Pastor Josue (take note to add in 1 Year Calendar)
+	- Bro Jhay suggests: start a seminar in Feb 23 taught by Pastor Josue (take note to add in 1 Year Calendar)
 	- Pastor Ramil adds: take note of gawain for AMD in regards to suggested seminar in Feb 23 and implementation of additional bible study leaders.
 	- Pastor Ramil addresses: Resurreccion family bible study is under Sis Princess so it is better that she is present in these bible studies.
 	- Bro Jhay adds: planning a distinct format when it comes to evangelism.
