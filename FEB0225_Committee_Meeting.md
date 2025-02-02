@@ -34,7 +34,7 @@
 
 ***
 ## 📌 Key Decisions
-- 
+
 
 ***
 ## 📌 Actions
