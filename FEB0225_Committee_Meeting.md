@@ -106,10 +106,10 @@
 - Bro Jhay addresses: is it okay to get colored hair with the person's natural hair color.
 - Sis Mhars replies: it is from their own conviction and regarding hygiene. We are not strictly "not allowed" or "pinagbabawalan" but it is a commandment from the Lord.
 - Pastor Ramil asks: are there more agendas, topics, or suggestions.
-- Sis Merriam asks: regarding bro Alex, etc. that some want to be reached out just like they have been consistently reached out by bro Digoy.
+- Sis Merriam asks: regarding bro Alex (Alicuman), etc. that some people prefer to be reached out just like they have been consistently reached out by bro Digoy.
 - Pastor Ramil replies: there are plans and desires for these things but there are scheduling issues.
 - Pastor Ramil comments: possible bible studies in sis Aiza and sis Lourdes' houses but there are struggles with willingness.
-- Sis Merriam shares: bro Renante's desire for devotion
+- Sis Merriam shares: bro Reynante's desire to learn to do devotion.
 - Sis Mhars shares: changes in sis Juvilyn.
 - Pastor Ramil initiates adjournment: accepted by sis Mhars seconded by bro Alex.
 - Closing prayer lead by bro JC (unrecorded)
