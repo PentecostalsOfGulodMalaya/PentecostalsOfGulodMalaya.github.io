@@ -17,12 +17,6 @@
 > - [x] Bro. Reynante
 
 ***
-## 📌 Summary
-
-***
-## 📌 Agenda
-
-***
 ## 📌 Items Discussed
 - **Previous meeting minutes** and the difference from current congregation state (made by Bro. Jhay)
 - **Switch of the CED Director** (currently Bro. Alex) and Treasurer (currently Sis. Tin)
@@ -31,10 +25,6 @@
 - **Addressing of suggestions** for each department
 - **Addressing of agendas** for this year
 - **Addressing of questions** for new church positions
-
-***
-## 📌 Key Decisions
-
 
 ***
 ## 📌 Actions
