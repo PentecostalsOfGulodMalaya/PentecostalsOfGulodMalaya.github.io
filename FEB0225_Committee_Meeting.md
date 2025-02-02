@@ -21,7 +21,7 @@
 
 ***
 ## 📌 Agenda
-- 
+
 ***
 ## 📌 Items Discussed
 - **Previous meeting minutes** and the difference from current congregation state (made by Bro. Jhay)
