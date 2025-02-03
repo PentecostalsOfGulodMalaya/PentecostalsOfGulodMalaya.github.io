@@ -1,10 +1,9 @@
 # Committee Meeting
 ## Details ⤵️
-> **Description:** 
-> 
-> **Date:** February 02, 2025 - Sunday
-> **Time Started:** 2:13 PM 
-> **Time Ended:** 4:12 PM
+**Description:** 
+**Date:** February 02, 2025 - Sunday
+**Time Started:** 2:13 PM 
+**Time Ended:** 4:12 PM
 ***
 ## 📌 Participants
 > - [x] Pastor. Ramil
