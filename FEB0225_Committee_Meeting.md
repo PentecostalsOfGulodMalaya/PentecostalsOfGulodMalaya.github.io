@@ -62,11 +62,11 @@
 	- Pastor Ramil adds: both Pastor and Sis. Mhars has been planning bonding and chatting moments with the Youth since last year (2024) to get to know each other.
 	- Pastor Ramil suggests: regular after-service and after lunch recreational activities but consider departmental scheduling issues and monthly fellowship.
 	- Pastor Ramil addresses: what actions are to be made for the youth that are not active.
-	- Sis. Merriam adds: some in the Flores family feels like that they are not being approached and are left out.
-	- Sis. Mhars replies: regarding the Flores family that they are hard to contact and usually not home.
+	- Sis. Merriam adds: some in the Clores/Miasco family feels like that they are not being approached and are left out.
+	- Sis. Mhars replies: regarding the Clores/Miasco family that they are hard to contact and usually not home.
 	- Bro. Alex adds: observation about Bro. Roniel and Bro. Lester feeling left out so it is good to open Youth Kamustahan.
 	- Sis. Mhars addresses: one of the LM members sais that they are not being reached out as much (compared to Sis. Edith) and that the inactive youth are difficult to contact.
-	- Sis. Merriam adds: observation that the Flores family are sometimes home (Bro. Lester has been seen drinking)
+	- Sis. Merriam adds: observation that the Clores/Miasco family are sometimes home (Bro. Lester has been seen drinking)
 	- Bro. Jhay addresses: there are efforts to avoid division in the youth but there are struggles in having distance from God.
 	- Bro. JC adds: combined efforts to invite them to big events like Youth Camp.
 	- Pastor Ramil replies: there have been efforts made to sponsor inactive youths to invite them to APYC etc. to no avail (they make a lot of excuses).
